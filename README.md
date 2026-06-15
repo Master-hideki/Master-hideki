@@ -3,7 +3,7 @@
 - Sou estudante📖
 - Gosto de Jogos🎮
 - Pretendo aprender Japonês🇯🇵
-- Estou aprendendo progamção💻
+- Estou aprendendo progamação💻
 - Estou aprendendo JacaScript🖥️
 - ENTRE EM CONTATO COMIGO: raphael.hideki@escola.pr.gov.br🤙
 
